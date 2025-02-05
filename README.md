@@ -1,4 +1,4 @@
-# 2024 Latest RAKsmart Coupon Codes - Organized Summary of RAKsmart Deals
+# 2025 Latest RAKsmart Coupon Codes - Organized Summary of RAKsmart Deals
 
 ## RAKsmart Introduction
 
